@@ -1,0 +1,2 @@
+# fawujhyang
+latihan menyenangkan//bismillah
