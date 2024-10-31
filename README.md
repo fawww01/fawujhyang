@@ -1,2 +1,3 @@
 # fawujhyang
-latihan menyenangkan//bismillah
+bismillahhhhh
+
